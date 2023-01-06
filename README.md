@@ -1,2 +1,2 @@
-# EfranSamux
-Efran Samux
+#020GANJA
+Gəncə 020
